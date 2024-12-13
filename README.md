@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Everything 
 - 📫 How to reach me ... IDK
 - 😄 Pronouns: ... 🫥
-- ⚡ Fun fact: ... I am Muslim
+- ⚡ Fun fact: ... There is no FUN
 
 <!---
 Rebirth22-beep/Rebirth22-beep is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
